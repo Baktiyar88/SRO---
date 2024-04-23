@@ -57,8 +57,14 @@ fill_mode='nearest'
 ![image](https://github.com/Baktiyar88/SRO---/assets/158766882/e43cd53b-235c-4ab4-be4b-502d9989703c)
 
 
+![image](https://github.com/Baktiyar88/SRO---/assets/158766882/fc2f2d82-feeb-4ae3-bce4-4eaf98d11675)
+![image](https://github.com/Baktiyar88/SRO---/assets/158766882/79c49832-fbf4-4baf-8062-38b397890861)
 
 ![image](https://github.com/Baktiyar88/SRO---/assets/158766882/cec51ce7-fe85-4a5b-93a6-ae8b2464d8e0)
+![image](https://github.com/Baktiyar88/SRO---/assets/158766882/f324a112-ecdf-4ad9-9a06-614555e07a6e)
+
 ![image](https://github.com/Baktiyar88/SRO---/assets/158766882/aeca8af2-2e15-4d23-ac8f-3a0ce7bc8f5d)
+![image](https://github.com/Baktiyar88/SRO---/assets/158766882/2c970024-ff27-49c3-8078-d09d1cbcc5da)
+
 ![image](https://github.com/Baktiyar88/SRO---/assets/158766882/fc983705-f758-4661-b86c-0901a87dfd67)
 
