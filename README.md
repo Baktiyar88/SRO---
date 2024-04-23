@@ -69,4 +69,5 @@ fill_mode='nearest'
 ![image](https://github.com/Baktiyar88/SRO---/assets/158766882/2c970024-ff27-49c3-8078-d09d1cbcc5da)
 
 ![image](https://github.com/Baktiyar88/SRO---/assets/158766882/fc983705-f758-4661-b86c-0901a87dfd67)
+![image](https://github.com/Baktiyar88/SRO---/assets/158766882/7778a135-39cb-461f-b892-1d5a14c55b90)
 
